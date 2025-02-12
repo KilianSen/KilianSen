@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KilianSen
+👋 Hi, I’m @KilianSen
 Im interested in:
 - 🏍️ Motorcycles/Cars
 - 🎮 Games
